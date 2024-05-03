@@ -5,11 +5,6 @@
 	Your opinion is very important.
 ----------------------------------------------
 
-If you have any questions or need a freelance work, please contact me:
-
-Website: https://codecanyon.net/user/trezegames
-Or email: trezegamesbr@gmail.com
-
 
 WARNING:
 If you did not purchase this item from the CodeCanyon website, it is recommended to delete it immediately.
